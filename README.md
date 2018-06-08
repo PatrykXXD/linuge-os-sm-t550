@@ -1,0 +1,1 @@
+# linuge-os-sm-t550
